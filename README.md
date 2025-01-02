@@ -1,0 +1,8 @@
+- 👋 Hi, I’m @MaDoGoMi
+- 👀 I’m interested in starting a business 
+- 🌱 I’m currently learning react js 
+- 💞️ I’m looking to collaborate on starting my business
+- 📫 How to reach me            Email-marvelousmadogomi28@gmail.com  WhatsApp- 07013986213    
+- 😄 Pronouns:
+- ⚡ Fun fact: I'm using only my phone for all this because I don't have a computer
+- 🥺 Please help, I'm totally lost and don't know what I'm doing
